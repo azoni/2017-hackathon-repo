@@ -7,3 +7,7 @@
 5. Code Day - Febuary 18
 6. AT&T VR/AR - Febuary 24-26
 7. T-Mobile March 25-26
+8. Expition
+9. global AI
+10. AngelHacks
+11. 
